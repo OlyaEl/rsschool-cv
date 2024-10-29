@@ -1,1 +1,1 @@
-# rsschool-cv
+https://olyael.github.io/rsschool-cv/cv
